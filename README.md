@@ -1,7 +1,7 @@
 # Hey 👋
 Mu name is Wanessa Barros ❤️‍ 🇧🇷
 ###  About me 👇
-🎓     I Study Systems Analysis and Development - FATEC SP.
+🎓     I am a student of Systems Analysis and Development - FATEC SP.
 
 👩🏽‍🎓 I am currently studying Javascript, Java and Python
 
