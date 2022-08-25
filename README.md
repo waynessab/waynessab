@@ -4,7 +4,7 @@ Mu name is Wanessa Barros ❤️‍ 🇧🇷
 🎓     I am a student of Systems Analysis and Development - FATEC SP.
 
 👩🏽‍🎓 I am currently studying Javascript, Java and Python
-
+❤️‍I'm junior support technician
 
 #### "Everything is possible if you dedicate yourself head and heart." 🧠❤️
 
