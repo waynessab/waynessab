@@ -3,7 +3,7 @@ My name is Wanessa Barros ❤️‍ 🇧🇷
 ###  About me 👇
 🎓     I am a student of Systems Analysis and Development - FATEC SP.
 
-❤️‍I'm support technician
+❤️‍I'm support technician since 2022
 
 #### "Everything is possible if you dedicate yourself head and heart." 🧠❤️
 
